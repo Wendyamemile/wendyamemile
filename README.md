@@ -27,4 +27,4 @@
 
 - **LinkedIn:** [linkedin.com/in/wend-yam-nikiema-653b31236](https://bf.linkedin.com/in/wend-yam-nikiema-653b31236)
 - **[Email:** (jeannikiema95@gmail.com)
-- - **[Website:** https://wendyamtech.com
+- **[Website:** https://wendyamtech.com
